@@ -9,6 +9,8 @@ Questions:
 - How traditional art is differentiated from popular useful objecs?
 - What are the boundaries and limits of traditional folk art?
 - How to compare traditional, modern, and contemporary periods?  
+- What is the opposite of tradition?
+- What are the kinds of traditions?
 
 Thoughts:
 - identity, root, national treasure
