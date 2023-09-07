@@ -3,12 +3,12 @@ Notes on tradition.
 ## What is tradition?
 
 Questions:
-Where the word origination?
-Are traditional things are useful?
-Why traditional things are so popular?
-How traditional art is differentiated from popular useful objecs?
-What are the boundaries and limits of traditional folk art?
-How to compare traditional, modern, and contemporary periods?  
+- Where the word origination?
+- Are traditional things are useful?
+- Why traditional things are so popular?
+- How traditional art is differentiated from popular useful objecs?
+- What are the boundaries and limits of traditional folk art?
+- How to compare traditional, modern, and contemporary periods?  
 
 Thoughts:
 - identity, root, national treasure
